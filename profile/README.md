@@ -8,6 +8,7 @@
 - Not too many people, we're honestly just bored
 - We all got our own issues (e.g. short, ADHD, dumbass, etc.)
 - We love thinking, matter of fact we have been doing it for a month straight!
+- Our goal is too build products that make life easier and more stress-free
 
 ----------------
 
